@@ -7,7 +7,7 @@
 <br>
 <br>
 
--AI 코딩 교육 서비스, 호랑에듀 Business Development Manager <br>
+-AI 코딩 교육 서비스, 호랑에듀 Business Development Manager [2024.11 - 2026.01 <br>
 -한국디지털미디어고등학교 20기 e-비즈니스과 [2021.03 - 2024.02] <br>
 -중고등학생 IT/창업 비영리단체, IMPACT 설립 <br>
 -'스타트업 동아리, 저스트' 설립 <br>
